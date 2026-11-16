@@ -30,4 +30,4 @@ I build and ship real products. My main one is **[csjobs.ca](https://csjobs.ca)*
 
 ### 📫 Reach me
 
-[mazentbusiness@gmail.com](mailto:mazentbusiness@gmail.com) · [LinkedIn](https://www.linkedin.com/in/mazen-talsam-8070a42b0) · [mazentalsam.com](https://mazentalsam.com)
+[mazentbusiness@gmail.com](mailto:mazentbusiness@gmail.com) · [LinkedIn](https://www.linkedin.com/in/mazen-talsam-8070a42b0) · [mazentalsam.com](https://mazentalsam.ca/)
