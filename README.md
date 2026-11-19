@@ -4,7 +4,7 @@ CS student at **Wilfrid Laurier University**, looking for **Summer 2027 software
 
 I build and ship real products. My main one is **[csjobs.ca](https://csjobs.ca)**, which I run solo with paying subscribers.
 
-🌐 **[mazentalsam.com](https://mazentalsam.com)**: my portfolio and projects
+🌐 **[mazentalsam.ca](https://mazentalsam.ca)**: my portfolio and projects
 
 ---
 
